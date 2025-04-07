@@ -12,3 +12,4 @@ Garry's Mods
 Roblox
 - Site68: SCP RP FR
 - Nice Roleplay FR
+- Horison: RolePlay FR
