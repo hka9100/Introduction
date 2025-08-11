@@ -9,7 +9,7 @@ Garry's Mods
 - Nexia Community FR
 - NextWorld RolePlay FR
 
-Roblox
+
 - Site68: SCP RP FR
 - Nice Roleplay FR
-- Horison: RolePlay FR
+- Horizon: RolePlay FR
